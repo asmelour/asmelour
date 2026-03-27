@@ -7,7 +7,7 @@ I LOV MY SILLY GIRL NEI SMM
 
 ᛝ uncomfortable around strangers, so i dont talk much. 
 
-ᛝ i'm only 16yo, so u can address me however you like n i dont mind if we get along.
+ᛝ i'm only 17yo, so u can address me however you like n i dont mind if we get along.
 
 |j4f| actually this my gf and i 😝 @y0ungkeukeu lmaoo
 ![gif](https://i.pinimg.com/736x/92/8b/b3/928bb3e7860f136c23d71b18b55a4239.jpg)
