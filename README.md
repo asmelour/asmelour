@@ -5,4 +5,6 @@
 </p>
 <p align="center">
 
-## ![img](https://i.pinimg.com/originals/9d/36/04/9d3604055746023c50ec186357c218f1.gif)
+<p align="center">
+  <img src="https://i.postimg.cc/Vk8vMgR0/Khong-Co-Tieu-De762-20260511181556.png" width="450"/>
+</p>
